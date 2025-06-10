@@ -2,7 +2,7 @@
 
 [LinkedIn профіль](Hidden)  | [Електронна пошта](Hidden) | [Телефон](Hidden) | [Місто, Hidden]
 
-## Obout me
+## About me
 Nothing
 
 
