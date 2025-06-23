@@ -1,9 +1,9 @@
-# Name Sname
+# Oleksandr Fataiev
 
-[LinkedIn профіль](Hidden)  | [Електронна пошта](Hidden) | [Телефон](Hidden) | [Місто, Hidden]
+[LinkedIn профіль](Hidden)  | [Електронна пошта](Hidden) |
 
 ## About me
-Nothing
+Nothing 
 
 
 
